@@ -60,6 +60,8 @@ A list of Back November, Black Friday & Cyber Monday promotions and discounts fo
 
 #### and many more https://udemyfreecourses.org/category/all-development
 
+#### 💸 50% Off Nessus Pro or Expert from Tenable shorturl.at/enwAH. Use Coupon: TakeHalf Offer good Nov 24-28
+
 
 ### Design
 
